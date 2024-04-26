@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Shadows+Into+Light&size=30&pause=1000&color=F788EF&random=false&width=435&lines=HELLO+EVERYONE+!!!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Shadows+Into+Light&size=30&pause=1000&color=F788EF&random=false&width=435&lines=MY+NAME+IS+BOF+!!!!)](https://git.io/typing-svg)
 ## 🌐 Socials:
 [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/https://www.facebook.com/groups/318166702534463) 
 
