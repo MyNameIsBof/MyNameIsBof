@@ -1,7 +1,9 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Shadows+Into+Light&size=30&pause=1000&color=F788EF&random=false&width=435&lines=MY+NAME+IS+BOF+!!!!)](https://git.io/typing-svg)
-# 💫 About Me:
-Học ĐI 
 
+# 💫 About Me:
++
++
++
 
 ## 🌐 Socials:
 [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/https://www.facebook.com/bebof2004) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/https://www.instagram.com/bebof410/) 
