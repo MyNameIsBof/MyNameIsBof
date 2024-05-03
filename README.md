@@ -1,8 +1,8 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Shadows+Into+Light&size=30&pause=1000&color=F788EF&random=false&width=435&lines=MY+NAME+IS+BOF+!!!!)](https://git.io/typing-svg)
 
 # 💫 About Me:
-+
-+
++ Learn đi đọc chi 
++ 
 +
 
 ## 🌐 Socials:
