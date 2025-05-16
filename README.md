@@ -2,7 +2,7 @@
 
 # 💫 About Me:
 + Learn đi đọc chi 
-+ 
++ Âu shit
 +
 
 ## 🌐 Socials:
